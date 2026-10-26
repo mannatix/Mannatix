@@ -3,7 +3,7 @@
 - 🌱 We are Completed many Different Diffrent project as our buyer requirement.
 - 💞️ We are looking to collaborate on ...
 - 📫 How to reach me ...
-🔗 Telegram: https://t.me/bytexionl
+🔗 Telegram: https://t.me/mannatix
 📧 Email: mannatix.it@gmail.com
 🔗 Our Demo work watch here: https://youtube.com/@mannatix
 
